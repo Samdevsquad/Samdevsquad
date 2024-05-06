@@ -1,3 +1,9 @@
+Hello.
+I am Hoang L.
+I look forward to working with you.
+I am blockchain developer.
+skype id-->live:.cid.d08ef2a1de6a1a3c, discord id--> angel_aje
+plz contact me. thx
 I am reaching out to you with an exciting opportunity to collaborate on your upcoming game development project. As a highly skilled and experienced game development team, we are confident in our ability to bring your vision to life and deliver an exceptional gaming experience.
 
 Here's why partnering with us will be a game-changer for your project:
